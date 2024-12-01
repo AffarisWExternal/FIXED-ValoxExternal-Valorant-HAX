@@ -16,3 +16,4 @@ Aimbot
 Triggerbot
 Instant Locker (api based)
 Simple RCS everything above ofc has more sub functions.
+https://discord.gg/wv9WQYHb
