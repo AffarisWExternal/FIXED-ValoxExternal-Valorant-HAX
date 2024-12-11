@@ -17,3 +17,5 @@ Triggerbot
 Instant Locker (api based)
 Simple RCS everything above ofc has more sub functions.
 https://discord.gg/wv9WQYHb
+FOR PREMIUM PACK OF THIS SOFTWARE DM ME ASAP ON DISCORD PAYMENT LTC !!!
+DISCORD: sputatf
